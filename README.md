@@ -1,5 +1,5 @@
 # Recipes
 
-Yep. That's all. Some tasty recipes, with all fluff removed, in simple Markdown syntax!
+Yep. That's all. Tasty recipes, with all fluff removed, in simple Markdown syntax!
 
 Enjoy!
