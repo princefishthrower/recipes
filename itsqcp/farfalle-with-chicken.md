@@ -1,0 +1,52 @@
+
+1 chicken breast, chopped into strips
+3 cloves of garlic
+salt
+pepper
+half cup heavy cream
+1/4 cup asiago cheese
+farfalle pasta
+parmesan cheese for topping
+
+Pan on the stove, medium heat
+
+Get some olive oil on there
+
+Put the chicken strips in the pan
+
+Little bit of salt
+
+Little bit of black pepper on top
+
+Little bit of garlic on top
+
+Get 'em gold on both sides
+
+Set aside chicken / garlic mixture
+
+Dice up half a shallot to the empty pan, cook 2-3 minutes
+
+Handful of sundried tomatoes
+
+Start the water for the pasta
+
+Half a cup of heavy cream to the pan
+
+Add a handful of spinach to the pan
+
+Add a handful of asiago cheese to the pan
+
+Add salt to the boiling water
+
+Add farfalle pasta to boiling water
+
+Farfalle to pan
+
+Chicken to pan
+
+Toss it up
+
+Top with Parmesan Cheese
+
+Pasta betch!
+
