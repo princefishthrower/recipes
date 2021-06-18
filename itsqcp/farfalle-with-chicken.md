@@ -1,52 +1,55 @@
+# Farfalle With Chicken
 
-1 chicken breast, chopped into strips
-3 cloves of garlic
-salt
-pepper
-half cup heavy cream
-1/4 cup asiago cheese
-farfalle pasta
-parmesan cheese for topping
+- 1 chicken breast, chopped into strips
+- 3 cloves of garlic
+- salt
+- pepper
+- half cup heavy cream
+- 1/4 cup asiago cheese
+- farfalle pasta
+- parmesan cheese for topping
 
-Pan on the stove, medium heat
+_In the style of QCP:_
 
-Get some olive oil on there
+Pan on the stove, medium heat!
 
-Put the chicken strips in the pan
+Get some olive oil on there!
 
-Little bit of salt
+Put the chicken strips in the pan!
 
-Little bit of black pepper on top
+Little bit of salt!
 
-Little bit of garlic on top
+Little bit of black pepper on top!
 
-Get 'em gold on both sides
+Little bit of garlic on top!
 
-Set aside chicken / garlic mixture
+Get 'em gold on both sides!
 
-Dice up half a shallot to the empty pan, cook 2-3 minutes
+Set aside chicken / garlic mixture!
 
-Handful of sundried tomatoes
+Dice up half a shallot to the empty pan, cook 2-3 minutes!
 
-Start the water for the pasta
+Handful of sundried tomatoes!
 
-Half a cup of heavy cream to the pan
+Start the water for the pasta!
 
-Add a handful of spinach to the pan
+Half a cup of heavy cream to the pan!
 
-Add a handful of asiago cheese to the pan
+Add a handful of spinach to the pan!
 
-Add salt to the boiling water
+Add a handful of asiago cheese to the pan!
 
-Add farfalle pasta to boiling water
+Add salt to the boiling water!
 
-Farfalle to pan
+Add Farfalle pasta to boiling water!
 
-Chicken to pan
+Farfalle in the pan!
 
-Toss it up
+Chicken in the pan!
 
-Top with Parmesan Cheese
+Toss it up!
+
+Top with Parmesan cheese!
 
 Pasta betch!
 
