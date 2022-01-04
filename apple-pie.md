@@ -9,6 +9,9 @@
 1T white vinegar 
 1t baking powder
 
+Combine flour and crisco until fluffy
+Mix egg, water, white vinegar, and baking powder seperately and add to fluffy dough
+
 ## Filling
 
 6 large apples
@@ -20,5 +23,6 @@
 1/8 t cloves
 3T melted butter
 
+Combine all ingredients and put into pie tin
 Bake 10 minutes at 425 F (218 C)
 Then 35-40 minutes at 350 F (176 C)
