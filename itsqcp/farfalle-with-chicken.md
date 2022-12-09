@@ -1,5 +1,7 @@
 # Farfalle With Chicken
 
+_In the style of QCP (https://m.tiktok.com/v/6934135964600126725.html):_
+
 - 1 chicken breast, chopped into strips
 - 3 cloves of garlic
 - salt
@@ -8,8 +10,6 @@
 - 1/4 cup asiago cheese
 - farfalle pasta
 - parmesan cheese for topping
-
-_In the style of QCP (https://m.tiktok.com/v/6934135964600126725.html):_
 
 Pan on the stove, medium heat!
 
