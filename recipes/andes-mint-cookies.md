@@ -9,7 +9,7 @@
 - 1/2 cup + 2 Tbsp. Cocoa Powder
 - 1 teaspoon baking soda
 - 1/4 teaspoon salt
-2 Tbsp. milk or heavy whipping cream
+- 2 Tbsp. milk or heavy whipping cream
 - 1 cup chopped Andes Mints plus a little more for topping
 - 1/3 cup semi-sweet chocolate chips (or Mint Chips for more mint flavor)
 
